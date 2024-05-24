@@ -37,7 +37,7 @@ From the New York Times:
 > Serves 8. Inspired by a recipe by [Lee
 > Bailey](https://www.nytimes.com/2003/10/17/nyregion/lee-bailey-expert-on-cooking-and-entertaining-is-dead-at-76.html).
 
-From Ben: 
+From Piper: 
 
 > I'm pretty sure this one is from the New York Times magazine. I remember my mom
 > making this on summer evenings, and the rich yellow-brown color of the carmelized
