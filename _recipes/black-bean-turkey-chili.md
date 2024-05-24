@@ -35,7 +35,7 @@ directions:
 
 ---
 
-From Ben:
+From Piper:
 
 > This recipe seems to be from an article about weight-loss recipes, which I can't
 > say particularly jives with my current body positivity efforts. Nevertheless, it's

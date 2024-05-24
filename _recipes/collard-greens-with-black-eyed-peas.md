@@ -44,7 +44,7 @@ Also, you can make part of the recipe ahead of time:
 > separately for up to 2 days. Reheat both dishes gently before continuing with the
 > recipe.
 
-From Ben: 
+From Piper: 
 
 > I don't remember exactly when my mom made this recipe, but I recall her talking
 > fondly about Southern food from her time going to college (and then working) in

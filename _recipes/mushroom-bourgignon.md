@@ -51,7 +51,7 @@ directions:
 
 ---
 
-From Ben:
+From Piper:
 
 > This one's a recipe that my partner Samara and I have come to love. We first made during
 > COVID lockdown, and it's since become a comfort food stable. I think my mom would have

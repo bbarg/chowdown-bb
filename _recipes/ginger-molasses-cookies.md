@@ -37,7 +37,7 @@ directions:
 
 ---
 
-From Ben:
+From Piper:
 
 > This recipe comes from one of my mom's favorite baking cookbooks: [Rosie's All-Butter,
 > Cream-Filled, Sugar-Packed Baking
